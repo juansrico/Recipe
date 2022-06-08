@@ -7,7 +7,7 @@ Ingredients:
 Instructions:
 - cut and mash avocados
 - chop onion
-- squeeze lime
+- squeeze lemon
 - add salt
 - and mix well
 - serve in a colorful plate 
